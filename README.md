@@ -3,7 +3,7 @@
 我不是盐神是一个专注于提供免费小说阅读的平台，它汇聚了海量的小说资源，尤其是知乎盐选文章的免费搬运。该网站界面简洁，阅读体验舒适，内容丰富多样，涵盖各种题材的小说，满足不同用户的阅读需求。用户可以在这里免费阅读到许多原本需要付费的知乎盐选文章，享受无广告干扰的阅读体验。此外，网站还提供了搜索、分类等功能，帮助用户快速找到心仪的书籍。
 
 <p><strong>一键访问：</strong><a href="https://www.ggonav.com/sites/5930.html" target="_blank" ><strong>我不是盐神最新网址</strong></a></p>
-<p><strong>一键访问：<p><strong>一键访问：</strong><a href="https://www.ggonav.com/favorites/ziyuansousuo" target="_blank" ><strong>资源搜索</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://www.ggonav.com/favorites/ziyuansousuo" target="_blank" ><strong>资源搜索</strong></a></p>
 <p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank" ><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 
 ### 功能特点
